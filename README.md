@@ -1,4 +1,4 @@
 # invie
 Las guitarras más locas
 
-http://invie.website
+http://encuesta.96.lt
